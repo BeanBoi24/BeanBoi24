@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @BeanBoi24
 - 👀 I’m interested in NFT's and the crypto space.
 - 🌱 I’m currently learning NFT's and understanding stuff like coding and web3.
-- 📫 How to reach me BeanBoi#9490 on discord.
+- 📫 How to reach me BeanBoi24 on Twitter
