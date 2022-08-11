@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BeanBoi24.
-- 👀 NFT's, Crypto n Coding.
-- 👨‍💻 Python coder in the making.
-- 📫 BeanBoi24 on Twitter.
+- 👋 | Hi, I’m @BeanBoi24.
+- 👀 | NFT's, Crypto n Coding.
+- 👨‍💻 | Python coder in the making.
+- 📫 | BeanBoi24 on Twitter.
